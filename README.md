@@ -6,7 +6,7 @@ Hospitality Professional | Dubai
 - Waiter — COYA, Four Seasons Dubai
 - Waiter — 3fils, Jumeirah Dubai
 - Waiter — African Queen, J1 Beach Dubai
-- Waiter — Hyatt Centric La Merce, Barcelona
+- Waiter — Hyatt Centric La Mer
 
 ## Skills
 - Fine dining & luxury service
